@@ -10,6 +10,8 @@ description: When it comes to hosting a party or hosting guests, having the
 featuredpost: true
 featuredimage: /img/81ak3ibxhwl._ac_sl1500_.jpg
 ---
+![](/img/81ak3ibxhwl._ac_sl1500_.jpg)
+
 The Esatto Glass Salt Rimmer is a three-tier tray that sits on top of your glass, allowing you to rim your glass with salt or sugar. The first tier is filled with salt, the second with lime juice, and the third with sugar. This allows you to easily rim your glass with salt or sugar without making a mess or getting your hands dirty. The tray is made of high-quality, durable materials and is easy to clean, making it perfect for hosting parties or events.
 
 One of the best things about the Esatto Glass Salt Rimmer is its versatility. It can be used to rim glasses for a wide variety of drinks, including margaritas, daiquiris, and other cocktails. It's also great for rimming glasses for non-alcoholic drinks, such as lemonade or iced tea. This makes it a must-have for any home bartender or party host.
